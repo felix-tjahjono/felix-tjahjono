@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @felix-tjahjono
+- 📫 How to reach me: felix.tjahjono@gmail.com
+- 😄 Pronouns: He/Him
